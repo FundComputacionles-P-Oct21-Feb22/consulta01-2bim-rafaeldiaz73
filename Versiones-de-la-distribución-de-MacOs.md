@@ -1,0 +1,1 @@
+![](https://i.ibb.co/PQDtFdh/Diagrama-en-blanco-P-gina-2.png)

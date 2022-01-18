@@ -1,0 +1,1 @@
+![](https://i.ibb.co/mGKwxj9/Diagrama-en-blanco.png)
